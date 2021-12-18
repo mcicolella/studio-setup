@@ -1,4 +1,4 @@
-# My workstation setup
+# My studio setup
 
 
 ## YouTube Channel

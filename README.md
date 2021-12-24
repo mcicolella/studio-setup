@@ -1,7 +1,7 @@
-# My studio setup
+# Studio setup
 
 
-## YouTube Channel
+## Canale YouTube 
 
 ### Hardware
 
@@ -12,7 +12,7 @@
 * Chroma key screen Neewer (https://amzn.to/3GpCt3Y)
 * Logitech Brio 4K Webcam (https://amzn.to/3lHyb0c)
 
-### Free green screen videos
+### Video green screen free
 
 * https://www.videvo.net/stock-video-footage/green-screen/license/royalty-free/freeclips/yes/?page=0
 * https://www.storyblocks.com/video/search/green+screen

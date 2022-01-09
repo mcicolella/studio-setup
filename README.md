@@ -3,6 +3,9 @@
 
 ## Canale YouTube 
 
+![Studio setup](https://img.youtube.com/vi/ntksQKJBvFs/0.jpg)
+
+
 ### Arredamento
 
 * HOMCOM Libreria Scaffale Mobiletto in Legno con 3 Ripiani 4 Scompartimenti e 2 ante, 61.5x29.5x80cm (https://amzn.to/3pC9rJ7)

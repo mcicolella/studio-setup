@@ -3,7 +3,7 @@
 
 ## Canale YouTube 
 
-![Studio setup](https://img.youtube.com/vi/ntksQKJBvFs/0.jpg)
+[![Studio setup](https://img.youtube.com/vi/ntksQKJBvFs/0.jpg)](https://youtu.be/ntksQKJBvFs)
 
 
 ### Arredamento

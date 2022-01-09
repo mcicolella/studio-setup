@@ -19,6 +19,10 @@
 ### Hardware
 
 * Microfono Blue Yeti Nano (https://amzn.to/3e5kHWW)
+
+[![Pillole di YouTube: microfono Blue Yeti Mini con OBS Studio](https://img.youtube.com/vi/azgQp3zhYQQ/0.jpg)](https://youtu.be/azgQp3zhYQQ)
+
+
 * Braccio per microfono (https://amzn.to/2ULVWGt)
 * Ring Light Neewer (https://amzn.to/31GWxQB)
 * Softboxes Neewer (https://amzn.to/3y2JogK)

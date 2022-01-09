@@ -9,6 +9,9 @@
 ### Arredamento
 
 * HOMCOM Libreria Scaffale Mobiletto in Legno con 3 Ripiani 4 Scompartimenti e 2 ante, 61.5x29.5x80cm (https://amzn.to/3pC9rJ7)
+
+[![Setup del nuovo studio #1: la scrivania](https://img.youtube.com/vi/ffSxcBHBJJk/0.jpg)](https://youtu.be/ffSxcBHBJJk)
+
 * HOMCOM Scrivania PC di Design Moderno con Scaffale 133 x 55 x 123cm (https://amzn.to/3sJPxxI)
 * [8 Pezzi] Protezione Angoli e Bordi, Canwn Morbido Schiuma Paraspigoli Antiurto (https://amzn.to/3EAVSh5)
 

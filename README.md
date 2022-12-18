@@ -18,7 +18,7 @@
 [![Setup del nuovo studio #1: la scrivania](https://img.youtube.com/vi/ffSxcBHBJJk/0.jpg)](https://youtu.be/ffSxcBHBJJk)
 
 * HOMCOM Scrivania PC di Design Moderno con Scaffale 133 x 55 x 123cm (https://amzn.to/3sJPxxI)
-* [8 Pezzi] Protezione Angoli e Bordi, Canwn Morbido Schiuma Paraspigoli Antiurto (https://amzn.to/3EAVSh5)
+* Protezione Angoli e Bordi, Canwn Morbido Schiuma Paraspigoli Antiurto (8 pezzi) (https://amzn.to/3EAVSh5)
 
 
 ### Hardware

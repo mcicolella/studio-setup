@@ -33,6 +33,7 @@
 * Softboxes Neewer (https://amzn.to/3y2JogK)
 * Chroma key screen Neewer (https://amzn.to/3GpCt3Y)
 * Logitech Brio 4K Webcam (https://amzn.to/3lHyb0c)
+* Treppiede Portatile per Macchina Fotografica 62''/157cm in Alluminio, con Monopiede, Supporto per Telefono, Borsa, Adatto per Canon Nikon Sony Samsung Olympus Travel, Carico Massimo 6kg (https://amzn.to/3FXQHMd)
 * TP-Link TL-SG108 Switch 8 Porte 10/100/1000 Mbps (https://amzn.to/3Hkp8uy)
 * TP-Link TL-WPA4220 Kit Powerline WiFi, AV600 Mbps su Powerline, 300 Mbps su WiFi 2.4 GHz, 2 Porte Ethernet Play (Kit contenente) (https://amzn.to/3HhVSV6)
 * Ayizon braccetto per smartphone, montaggio video, porta telefono (https://amzn.to/33Wi20G)
